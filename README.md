@@ -1,1 +1,4 @@
-# pensamentocomputacional
+
+
+nicholas hiago ramalho 
+laura vitoria
